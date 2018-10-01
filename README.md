@@ -1,0 +1,2 @@
+# thichxedich
+thichxedich.com
